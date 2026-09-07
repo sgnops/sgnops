@@ -22,3 +22,7 @@
   
 [main strawpage](https://showtimelooey.straw.page)  .  [rentry](https://rentry.co/maceathon)  .  [pronouns.page](https://en.pronouns.page/@wiltedspyglass)
 </div>
+<div align="center">
+  read dni before interacting
+</div>
+
